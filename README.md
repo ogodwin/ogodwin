@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ogodwin
+- 👋 Hi, I’m @ogodwin (Oliver Godwin)
 - 👀 I’m interested in Video Games, and Software Developement
 - 🌱 I’m currently learning Software Developement at Ogden-Weber Technical College
 - 📫 You can reach me at (734)-747-3080 and oliver.m.godwin@gmail.com
